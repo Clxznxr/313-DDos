@@ -1,7 +1,7 @@
 # 313 DDos
 
 
-[Instagram](@Clxzner)
+[Instagram](instagram.com/@Clxzner)
 
 
 
