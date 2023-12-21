@@ -1,10 +1,5 @@
 # 313 DDos
 
-
-[Instagram](instagram.com/@Clxzner)
-
-
-
 DDOS Strong Tool To Stop Servers And Sites
 
 
